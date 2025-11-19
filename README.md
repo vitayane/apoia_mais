@@ -1,1 +1,0 @@
-# apoia_mais
